@@ -3,6 +3,11 @@
 ##Carol Danvers ist eine ehemalige US-Air-Force-Pilotin. Mittels eines Tesserakt's erhielt sie übermenschliche Kräfte und kann nun mit Photonenstrahlen ihre Feinde bekämpfen.
 
 
+Carol Danvers said:
+> I've been fighting with one arm tied behind my back, but what happens when I'm finally set free?
+
+
+
 *Spoiler*
 
 
